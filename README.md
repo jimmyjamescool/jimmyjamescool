@@ -1,8 +1,7 @@
-- 👋 Hi, I’m @jimmyjamescool
-- 👀 I’m interested in literally steal- i mean borrowing source code from fnf mods
-- 🌱 I’m currently learning stuff
-- 💞️ I’m looking to collaborate on literally nothing, yup. nothing
-- 📫 How to reach me you cant
+- god tier shitposter and slightly good music maker
+- can chart in 3 days or more
+- makes bambi fantracks for fun (and pain to my ears)
+- 邏樂螺落爐卵落爐
 
 <!---
 jimmyjamescool/jimmyjamescool is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
